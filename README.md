@@ -116,4 +116,4 @@ Feel free to contribute to this project by submitting issues or pull requests. L
 
 For any inquiries, feel free to reach out:  
 **Mehmood Ul Haq**  
-- Email: [your-email@example.com](mailto:mehmoodulhaq1040@gmail.com)
+- Email: [mehmoodulhaq1040@gmaile.com](mailto:mehmoodulhaq1040@gmail.com)
